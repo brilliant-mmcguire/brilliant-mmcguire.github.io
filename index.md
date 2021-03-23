@@ -1,37 +1,31 @@
-## Welcome to GitHub Pages
+## What we are all about 
+Our vision is of a world in which experienced professionals, consultants, and practitioners proactively invest their career capital in others to bring great ideas to life and build a sustainable, prosperous and fair society for everyone.
 
-You can use the [editor on GitHub](https://github.com/brilliant-mmcguire/brilliant-stuff/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Our mission is to support makers & doers of social goods on their journey, whether that is simply toward a resiliant livlihood for themselves or ambitious positive impact at scale.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Our approach is to bring the right combination of people, resources and governace together to innovate toward and inspiring vision and intended outcomes.  We support individuals, charities, social enterprises and other organisations by investing our practical know-how as well as financial capital.
 
-### Markdown
+## For social makers & doers 
+Brilliant Bytes are individuals, charities, social enterprises, mission-led businesses and organisations. They have brilliant ideas and projects that need support and investment to realise environmental or social impact that’s aligned with the UN’s SDGs. 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+## For supporters & investors
 
-```markdown
-Syntax highlighted code block
+A network of supporters are people with career capital - expertise, skills and other resources to call on.
 
-# Header 1
-## Header 2
-### Header 3
+Have busy lives but a determination to make a difference by helping others.
 
-- Bulleted
-- List
+Our prime specialism is digital - product, service delivery, strategy and transformation - complimented with expertise in lots of different fields of expertise.
 
-1. Numbered
-2. List
+Our investors comit their full canopy of resources; their time, energy, know-how, expertise and money. This is proactive capital at work. 
 
-**Bold** and _Italic_ and `Code` text
+We support individuals, charities, social enterprises and other organisations by investing our practical know-how as well as financial capital.
 
-[Link](url) and ![Image](src)
-```
+Our professional makers & doers come together to invest their career capital to help others build a sustainable, prosperous and fair society.
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
-### Jekyll Themes
+## For partners 
+Alongside our work as investors in social and envornmental impact, we partner with companies, foundations, charities and national and international government organisations to further the tech for good movement.
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/brilliant-mmcguire/brilliant-stuff/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+## Our portfolio 
+Our focus in on tech and innovaion and we have broad conception of what that means. 
+We support individuals, charities, social enterprises, businesses and other organisations with practical and financial capital.
