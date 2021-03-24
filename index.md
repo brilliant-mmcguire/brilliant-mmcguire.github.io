@@ -22,3 +22,6 @@ Alongside our work as investors in social and environmental impact, we partner w
 
 ## Our portfolio 
 We support individuals, charities, social enterprises, businesses and other organisations with practical and financial capital. Our focus is on tech and innovation and we have broad conception of what that means.
+
+## Equity, diversity and inclusion
+We want to advance equity, diversity and inclusion in every dimension of what we do and hold ourselves accountable for the results.
