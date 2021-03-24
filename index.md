@@ -33,5 +33,5 @@ We want to advance equity, diversity and inclusion in every dimension of what we
 ## Our philosophy and approach 
 Incremental steps can lead to big changes.
 
-Offering pro-bono and discounted consultancy services alongside grants, simple loans, and equity based seed and follow up financial capital. 
+Offering pro-bono and discounted consultancy services alongside grants, simple loans, and equity based seed, early stage and follow up financial capital. 
 
