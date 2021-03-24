@@ -31,6 +31,7 @@ We support individuals, charities, social enterprises, businesses and other orga
 We want to advance equity, diversity and inclusion in every dimension of what we do and hold ourselves accountable for the results.
 
 ## Our philosophy and approach 
-Incremental steps can lead to big changes
+Incremental steps can lead to big changes.
 
-Offering pro-bono advice, consultancy alongside grants, simple loans, and equity based seed and follow up financial capital. 
+Offering pro-bono and discounted consultancy services alongside grants, simple loans, and equity based seed and follow up financial capital. 
+
