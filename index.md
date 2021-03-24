@@ -1,9 +1,9 @@
 ## What we are all about 
-Our vision is of a world in which experienced professionals, consultants, and practitioners proactively invest their career capital in others to bring great ideas to life and build a sustainable, prosperous and fair society for everyone.
+Our vision is of a world in which experienced professionals and practitioners, rich in experience, proactively invest their career capital in others to build a sustainable, prosperous and fair society for everyone.
 
-Our mission is to support makers & doers of social goods on their journey toward a resiliant livlihood for themselves and positive impact for their community.
+Our mission is to help makers & doers of social goods bring great ideas to life, and then support them on their journey toward a resilient livelihood for themselves, and positive impact for their community.
 
-Our approach is to bring the right combination of people, resources and governace together to innovate toward a brilliant vision and realise brilliant outcomes. 
+Our approach is to bring the right mix of people, resources and governance together to innovate toward a brilliant vision and realise brilliant outcomes. 
 
 ## For social makers & doers 
 Individuals, charities, social enterprises, mission-led businesses and organisations. The have brilliant ideas and projects that need support and investment to realise environmental or social impact that’s aligned with the UN’s SDGs. 
@@ -18,11 +18,10 @@ Our prime specialism is digital - product, service delivery, strategy and transf
 
 Our investors comit their full canopy of resources; their time, energy, know-how, expertise and money. This is proactive capital at work. 
 
-Our investors are motivated first by making a positive impact and second by maintining and growing their career capital. This includes experience, social and professional network, skills, and financial. 
+Our investors are motivated first by making a positive impact and second by maintaining and growing their career capital. This includes experience, social and professional network, skills, and financial. 
 
 ## For partners 
-Alongside our work as investors in social and envornmental impact, we partner with companies, foundations, charities and national and international government organisations to further the tech for good movement. 
+Alongside our work as investors in social and environmental impact, we partner with companies, foundations, charities and national and international government organisations to further the tech for good movement. 
 
 ## Our portfolio 
-We support individuals, charities, social enterprises, businesses and other organisations with practical and financial capital.
-Our focus in on tech and innovaion and we have broad conception of what that means. 
+We support individuals, charities, social enterprises, businesses and other organisations with practical and financial capital. Our focus is on tech and innovation and we have broad conception of what that means.
