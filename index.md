@@ -18,7 +18,7 @@ Our investors commit their full canopy of resources; their time, energy, know-ho
 Our prime specialism is digital - product engineering, service delivery, strategy and transformation - complimented with expertise in complementary fields.
 
 ## For partners 
-Alongside our work as investors in social and environmental impact, we partner with companies, foundations, charities and national and international government organisations to further the tech for good movement. 
+We partner with companies, foundations, charities, national and international government organisations to further the tech enabled innovation for good movement. 
 
 ## Our portfolio 
 We support individuals, charities, social enterprises, businesses and other organisations with practical and financial capital. Our focus is on tech and innovation and we have broad conception of what that means.
