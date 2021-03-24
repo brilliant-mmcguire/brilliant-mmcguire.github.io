@@ -1,7 +1,7 @@
 ## What we are all about 
 Our vision is of a world in which experienced professionals and practitioners, rich in experience, proactively invest their career capital in others to build a sustainable, prosperous and fair society for everyone.
 
-Our mission is to help makers & doers of social goods bring great ideas to life, and then support them on their journey toward a resilient livelihood for themselves, and positive impact for their community.
+Our mission is to help makers & doers of social goods bring great ideas to life, and then support them on their journey toward resilient livelihoods for themselves, and positive impact for their communities.
 
 Our approach is to bring the right mix of people, resources and governance together to innovate toward a brilliant vision and realise brilliant outcomes. 
 
