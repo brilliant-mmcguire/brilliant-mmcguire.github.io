@@ -5,7 +5,7 @@ Our mission is to help makers & doers of social goods bring great ideas to life,
 
 Our approach is to bring the right mix of people, resources and governance together to innovate toward a brilliant vision and realise brilliant outcomes. 
 
-## For social makers & doers 
+## For good makers & doers 
 We provide makers & doers of social goods with the investment, support, expertise and networks to launch and build a successful future for themselves and those they serve. We welcome individuals, charities, social enterprises, mission-led businesses and organisations. You must simply have a brilliant idea or project that needs support and investment to realise environmental or social impact that’s aligned with the UN’s SDGs. 
 
 ## For supporters & investors
