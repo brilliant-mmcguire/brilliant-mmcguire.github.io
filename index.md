@@ -25,3 +25,9 @@ We support individuals, charities, social enterprises, businesses and other orga
 
 ## Equity, diversity and inclusion
 We want to advance equity, diversity and inclusion in every dimension of what we do and hold ourselves accountable for the results.
+
+## Our philosophy and approach 
+Incremental steps can lead to big changes
+Offering pro-bono advice, consultancy and grants 
+Simple loans 
+Equity based seed and follow up capital. 
