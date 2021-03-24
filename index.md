@@ -11,9 +11,9 @@ We provide makers & doers of social goods with the investment, support, expertis
 ## For supporters & investors
 Our network of supporters and investors are people who are rich in experience and copious career capital - expertise, skills and other resources - to call on. They have busy lives but also a determination to make a difference by helping others.
 
-Our investors are motivated first by making a positive impact and second by maintaining and growing their career capital. These assets include experience, social and professional network, skills, and financial. 
+Our investors are motivated first by making a positive impact and second by strenghening their career capital. These assets include experience, social and professional network, credentials, skills, and financial. 
 
-Our investors commit their full canopy of resources; their time, energy, know-how, expertise and money. This is proactive capital at work. 
+Our investors bring their whole selves to the table and commit their full canopy of resources; their time, energy, know-how, expertise and money. This is proactive career capitalism at work. 
 
 Our prime specialism is digital - product engineering, service delivery, strategy and transformation - complimented with expertise in complementary fields.
 
