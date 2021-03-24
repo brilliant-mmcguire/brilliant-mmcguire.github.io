@@ -17,6 +17,10 @@ Our investors bring their whole selves to the table and commit their full canopy
 
 Our prime specialism is digital - product engineering, service delivery, strategy and transformation - complimented with expertise in complementary fields.
 
+Financial capital: 
+SEIS and EIS for equity investments 
+SITR for loan investments
+
 ## For partners 
 We partner with companies, foundations, charities, national and international government organisations to further the innovate-for-good movement. 
 
