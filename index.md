@@ -9,7 +9,7 @@ Our approach is to bring the right mix of people, resources and governance toget
 We provide makers & doers of social goods with the investment, support, expertise and networks to launch and build a successful future for themselves and those they serve. We welcome individuals, charities, social enterprises, mission-led businesses and organisations. You must simply have a brilliant idea or project that needs support and investment to realise environmental or social impact that’s aligned with the UN’s SDGs. 
 
 ## For supporters & investors
-Our network of supporters and proactive investors are people who are rich in experience and copious career capital - expertise, skills and other resources - to call on. They have busy lives but also a determination to make a difference by helping others.
+Our network of supporters and proactive investors are people who are rich in experience and have a wealth of career capital - expertise, skills and other resources - to call on. They have busy lives but also a determination to make a difference by directly helping others.
 
 Our investors are motivated first by making a positive impact and second by strenghening their career capital. These assets include experience, social and professional network, credentials, skills, and financial. 
 
