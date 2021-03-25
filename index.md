@@ -30,8 +30,10 @@ We want to advance equity, diversity and inclusion in every dimension of what we
 
 ## Our philosophy & approach
 Innovation is about novel change, experimental variation, introducing new things into established settings.
-
-Framework for experiment and adapt. Iterative plan and predict. Incremental steps can lead to big changes.
+- Framework for experiment and adapt. 
+- Incremental steps can lead to big changes.
+- Iterative plan and predict. 
+- Governance. 
 
 ## Our commitment & services
 We offer pro-bono and discounted consultancy services alongside grants, simple loans, and equity based seed and follow up financial capital. 
