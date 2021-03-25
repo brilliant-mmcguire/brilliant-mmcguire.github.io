@@ -33,13 +33,9 @@ We want to advance equity, diversity and inclusion in every dimension of what we
 
 ## Our philosophy & approach
 Innovation is about novel change, experimental variation, introducing new things into established settings.
-
 - Framework for experiment and adapt. 
-
 - Incremental steps can lead to big changes.
-
 - Iterative plan and predict. 
-
 - Governance. 
 
 ## Our commitment & services
@@ -47,4 +43,4 @@ We offer pro-bono and discounted consultancy services alongside grants, simple l
 
 - Pro-bono services and grants are available for early and exploratory projects.  These are to help shape strategic thinking and test out the impact potential and commercial feasibility.
 
-- Ongoing support, loans and equity finance are available for the most promising projects. 
+- Ongoing support, loans and equity finance are available for the most promising projects. These are to establish and grow self-sustaining social enterprises. 
