@@ -15,7 +15,7 @@ Our investors are motivated first by making a positive impact and second by main
 
 Our investors bring their whole selves to the table and commit their full canopy of resources; their time, energy, know-how, expertise and money. This is proactive capital at work. 
 
-Our prime specialism is digital - product engineering, service delivery, strategy and transformation - complimented with expertise in complementary fields.
+Our prime specialism is digital - product engineering, service delivery, strategy and transformation - complimented with expertise in other fields.
 
 We ask our members to invest career capital alongside financial capital.  
 - Financial investment is made on a matched funding basis. 
