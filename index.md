@@ -32,11 +32,14 @@ We support individuals, charities, social enterprises, businesses and other orga
 We want to advance equity, diversity and inclusion in every dimension of what we do and hold ourselves accountable for the results.
 
 ## Our philosophy & approach
+Big changes result from incremental steps, taken with common purpose, toward a shared vision. 
 Innovation is about novel change, experimental variation, introducing new things into established settings.
-- Framework for experiment and adapt. 
-- Incremental steps can lead to big changes.
-- Iterative plan and predict. 
-- Governance. 
+
+Our approach and framework for success rest on our many years of experience delivering tech-enabled innovation. 
+
+- Experiment and adapt 
+- Iterative plan and predict 
+- Practical governance
 
 ## Our commitment & services
 We offer pro-bono and discounted consultancy services alongside grants, simple loans, and equity based seed and follow up financial capital. 
