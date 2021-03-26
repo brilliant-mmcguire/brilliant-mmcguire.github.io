@@ -26,14 +26,15 @@ We ask our members to invest career capital alongside financial capital.
 We partner with companies, foundations, charities, national and international government organisations.  Our partners further the innovate-for-good movement through funding, investment, community engagement, expertise and insights.
 
 ## Our projects 
-We support individuals, charities, social enterprises, businesses and other organisations with practical and financial capital. Our focus is on tech and innovation and we have broad conception of what that means. 
+We support individuals, charities, social enterprises, businesses and other organisations with practical and financial capital. Our strength is tech and innovation and we have broad conception of what that means. We believe brilliant outcomes result from the capabilities of dedicated teams of people.  For us, success looks like a commercially sustainable company of motivated and capable people serving their users, customers and community.  
 
 ## Equity, diversity and inclusion
 We want to advance equity, diversity and inclusion in every dimension of what we do and hold ourselves accountable for the results.
 
 ## Our philosophy & approach
-Big changes result from incremental steps, taken with common purpose, toward a shared vision. 
-Innovation is about novel change, experimental variation, introducing new things into established settings.
+Big changes result from incremental steps, taken in common purpose, toward a shared vision. 
+Innovation is about novel change, experimental variation, introducing new things into established settings. 
+Innovation is not about appropriating exclusive rights to IP and global scale, alough this can be an outcome of technical inventition.  
 
 Our approach and framework for success rest on our many years of experience delivering tech-enabled innovation. 
 
