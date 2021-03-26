@@ -25,7 +25,7 @@ We ask our members to invest career capital alongside financial capital.
 ## For partners 
 We partner with companies, foundations, charities, national and international government organisations to further the innovate-for-good movement. 
 
-## Our portfolio 
+## Our projects 
 We support individuals, charities, social enterprises, businesses and other organisations with practical and financial capital. Our focus is on tech and innovation and we have broad conception of what that means. 
 
 ## Equity, diversity and inclusion
