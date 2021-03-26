@@ -23,7 +23,7 @@ We ask our members to invest career capital alongside financial capital.
 - SITR for loan investments
 
 ## For partners 
-We partner with companies, foundations, charities, national and international government organisations to further the innovate-for-good movement. 
+We partner with companies, foundations, charities, national and international government organisations.  Our partners further the innovate-for-good movement through funding, investment, community engagement, expertise and insights.
 
 ## Our projects 
 We support individuals, charities, social enterprises, businesses and other organisations with practical and financial capital. Our focus is on tech and innovation and we have broad conception of what that means. 
