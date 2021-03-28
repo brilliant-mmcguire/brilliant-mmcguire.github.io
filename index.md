@@ -40,6 +40,7 @@ Our approach and framework for success rest on our many years of experience deli
 
 - Experiment and adapt 
 - Iterative plan and predict 
+- Fast value delivery and feedback cycles
 - Practical governance
 
 ## Our commitment & services
