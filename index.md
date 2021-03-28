@@ -1,5 +1,5 @@
 ## What we are all about 
-Our vision is of a world in which experienced professionals and practitioners, rich in experience, proactively invest their career capital in others to build a sustainable, prosperous and fair society for everyone.
+Our vision is of a world in which experienced professionals and practitioners invest their career capital in others to build a sustainable, prosperous and fair society for everyone.
 
 Our mission is to help makers & doers of social goods bring great ideas to life, and then support them on their journey toward a resilient livelihood for themselves, and positive impact for their community.
 
@@ -34,7 +34,7 @@ We want to advance equity, diversity and inclusion in every dimension of what we
 ## Our philosophy & approach
 Big changes result from incremental steps, taken in common purpose, toward a shared vision. 
 Innovation is about novel change, experimental variation, introducing new things into established settings. 
-Innovation is not about appropriating exclusive rights to IP and global scale, alough this can be an outcome of technical inventition.  
+Innovation is not about appropriating exclusive rights to IP and global scale, although this can be an outcome of technical invention.  
 
 Our approach and framework for success rest on our many years of experience delivering tech-enabled innovation. 
 
