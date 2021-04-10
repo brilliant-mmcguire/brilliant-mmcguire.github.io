@@ -8,16 +8,16 @@ Our approach is to bring the right mix of people, resources and governance toget
 ## For good makers & doers 
 We provide you with the investment, support, expertise and networks that you need to launch and build a successful future for yourself and those you choose to serve.  
 
-We are investing in you and in your team, developing your capability as leaders, makers and doers. Our measure of success is a self reliant and sustainable business that will deliver social value long into the future. 
+Our measure of success is a self reliant and sustainable business that will deliver social value long into the future. You and your team are what matter in making this happen.  So we are investing in you - developing your capability as leaders, makers and doers as well as the cash you need to get going. 
 
-We are a bunch  of practitioners with world class expertise that is there to support you. We help you in a hands-on and practical way and by providing expert advice and mentoring. This spans leadership and governance through pair-programming sessions with your software developers.  
+We are a bunch of practitioners with world class expertise that is there to support you. We help you in a hands-on and practical way and by providing expert advice and mentoring. This spans leadership and governance through to pair-programming sessions with your software developers.  
 
 What we ask from you is that you strive to: 
 - Make a positive difference in the world and become a shining example to others
 - Be brilliant at the work you practice 
 - Run a commercially viable and sustainable business so that your brilliant work can continue for the long term  
 
-To start with, you need an idea or project that needs support and investment to realise environmental/social impact that’s aligned with the UN’s SDGs. 
+To start with, you need an idea or project that needs support and investment to realise environmental/social benefit that’s aligned with the UN’s SDGs. 
 
 We welcome applications from individuals, charities, social enterprises, mission-led businesses and organisations.
 
