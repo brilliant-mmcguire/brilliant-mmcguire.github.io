@@ -8,7 +8,16 @@ Our approach is to bring the right mix of people, resources and governance toget
 ## For good makers & doers 
 We provide makers & doers of social goods with the investment, support, expertise and networks to launch and build a successful future for themselves and those they serve. We welcome individuals, charities, social enterprises, mission-led businesses and organisations. 
 
-You simply have a brilliant idea or project that needs support and investment to realise environmental or social impact that’s aligned with the UN’s SDGs. 
+We are investing in you and in your team, developing your capability as leaders, makers and doers. Our measure of success is a self reliant and sustainable business that will deliver social value long into the future. 
+
+We are a bunch  of practitioners with world class expertise that is there to support you. We help you in a hands-on and practical way and by providing expert advice and mentoring. This spans leadership and governance through pair-programming sessions with your software developers.  
+
+What we ask from you is that you strive to: 
+- Make a positive difference in the world and become a shining example to others
+- Be brilliant at the work you practice 
+- Run a commercially viable and sustainable business so that your brilliant work can continue for the long term  
+
+To start with, you need brilliant idea or project that needs support and investment to realise environmental/social impact that’s aligned with the UN’s SDGs. 
 
 ## For our member network
 Our network of supporters and proactive investors are people who are rich in experience and have a wealth of career capital - expertise, skills and other resources - to call on. They have busy lives but also a determination to make a difference by helping others.
