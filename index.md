@@ -8,7 +8,7 @@ Our approach is to bring the right mix of people, resources and governance toget
 ## For good makers & doers 
 We provide you with the investment, support, expertise and connections that you need to launch and build a successful future for yourself and those you choose to serve.  
 
-Success is when your business is self-reliant, when it is delivering social value and can continue doing that for the long term. You and your team are what matter in making this happen so we are investing in you. We can help you with the cash you need to get started but developing your capability as leaders, makers and doers is what we are about. 
+Success is when your business is self-reliant, when it is delivering social value and can continue doing that for the long term. You and your team are what matter in making this happen so we are investing in you and your people. We can help you with the cash you need to get started but developing your capability as leaders, makers and doers is what we are about. 
 
 We are a bunch of practitioners with world class expertise that is there to support you. We help you in a hands-on and practical way and by providing expert advice and mentoring. This spans leadership and governance through to pair-programming sessions with your software developers.  
 
