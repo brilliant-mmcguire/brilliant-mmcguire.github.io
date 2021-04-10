@@ -6,7 +6,7 @@ Our mission is to help makers & doers of social goods bring great ideas to life,
 Our approach is to bring the right mix of people, resources and governance together to innovate toward a brilliant vision and realise brilliant outcomes. 
 
 ## For good makers & doers 
-We provide makers & doers of social goods with the investment, support, expertise and networks to launch and build a successful future for themselves and those they serve. We welcome individuals, charities, social enterprises, mission-led businesses and organisations. 
+We provide you with the investment, support, expertise and networks that you need to launch and build a successful future for yourself and those you choose to serve.  
 
 We are investing in you and in your team, developing your capability as leaders, makers and doers. Our measure of success is a self reliant and sustainable business that will deliver social value long into the future. 
 
@@ -17,7 +17,9 @@ What we ask from you is that you strive to:
 - Be brilliant at the work you practice 
 - Run a commercially viable and sustainable business so that your brilliant work can continue for the long term  
 
-To start with, you need brilliant idea or project that needs support and investment to realise environmental/social impact that’s aligned with the UN’s SDGs. 
+To start with, you need an idea or project that needs support and investment to realise environmental/social impact that’s aligned with the UN’s SDGs. 
+
+We welcome applications from individuals, charities, social enterprises, mission-led businesses and organisations.
 
 ## For our member network
 Our network of supporters and proactive investors are people who are rich in experience and have a wealth of career capital - expertise, skills and other resources - to call on. They have busy lives but also a determination to make a difference by helping others.
