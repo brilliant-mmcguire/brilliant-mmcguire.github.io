@@ -6,7 +6,7 @@ Our mission is to help makers & doers of social goods bring great ideas to life,
 Our approach is to bring the right mix of people, resources and governance together to innovate toward a brilliant vision and realise brilliant outcomes. 
 
 ## For good makers & doers 
-We provide you with the investment, support, expertise and networks that you need to launch and build a successful future for yourself and those you choose to serve.  
+We provide you with the investment, support, expertise and connections that you need to launch and build a successful future for yourself and those you choose to serve.  
 
 Our measure of success is a self reliant and sustainable business that will deliver social value long into the future. You and your team are what matter in making this happen.  So we are investing in you - developing your capability as leaders, makers and doers as well as the cash you need to get going. 
 
