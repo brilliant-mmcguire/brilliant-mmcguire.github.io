@@ -59,6 +59,6 @@ Our approach and framework for success rest on our many years of experience deli
 ## Our commitment & services
 We offer pro-bono and discounted consultancy services alongside grants, simple loans, and equity based seed and follow up financial capital. 
 
-- Pro-bono services and grants are available for early and exploratory projects.  These are to help shape strategic thinking and test out the impact potential and commercial feasibility.
+- Pro-bono services and grants are available for early and exploratory projects.  These are to help you tighten-up your thinking, test out your idea's impact potential, and validate commercial feasibility.
 
 - Ongoing support, loans and equity finance are available for the most promising projects. These are to establish and grow self-sustaining social enterprises. 
