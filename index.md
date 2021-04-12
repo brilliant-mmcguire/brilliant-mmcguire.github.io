@@ -52,7 +52,7 @@ Innovation is not about appropriating exclusive rights to IP and global scale, a
 Our approach and framework for success rest on our many years of experience delivering tech-enabled innovation. 
 
 - Experiment and adapt 
-- Iterative plan and predict 
+- Iterative predict, plan and prepare 
 - Fast value delivery and feedback cycles
 - Practical governance
 
