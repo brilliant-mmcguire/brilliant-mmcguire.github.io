@@ -8,7 +8,7 @@ Our approach is to bring the right mix of people, resources and governance toget
 ## For good makers & doers 
 You have an ambition to launch and build a successful business that provides you with a good livlihood and serves your customers/users well. We provide you with the investment, support, expertise and connections that you need to make that happen.  
 
-It's your business and we respect that. We are concerned first with the beneficial impact your business has and only about modest returns on capital. We are patient and will be there to support you build a sustainable enterprise; not pressure you to scale up quickly or narrowly focus on your EBITA.  
+It's your business and we respect that. We are concerned first with the beneficial impact your business has and only then about modest returns on capital. We are patient and will be there to support you build a sustainable enterprise; not pressure you to scale up quickly or narrowly focus on your EBITA.  
 
 Success is when your business is self-reliant, when it is delivering social value and can continue doing that for the long term. You and your team are what matter in making this happen so we are investing in you and your team. We can help you with the cash you need to get started but developing your capability as leaders, makers and doers is what we are about. 
 
