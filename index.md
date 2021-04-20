@@ -12,7 +12,7 @@ It's your business and we respect that. We are concerned first with the benefici
 
 Success is when your business is self-reliant, when it is delivering social value and can continue doing that for the long term. You and your team are what matter in making this happen so we are investing in you and your team. We can help you with the cash you need to get started but developing your capability as leaders, makers and doers is what we are about. 
 
-We are a bunch of practitioners with world class expertise that is there to support you. We help out in a hands-on and practical way and by providing expert advice and mentoring. This spans leadership and governance through to pair-programming sessions with your software developers.  
+We are a bunch of practitioners with world class expertise that is there to for you to draw on. We can help out in a hands-on and practical way and by providing expert advice and mentoring. This spans leadership and governance through to pair-programming sessions with your software developers.  
 
 What we ask from you is that you strive to: 
 - Make a positive difference in the world and become a shining example to others
