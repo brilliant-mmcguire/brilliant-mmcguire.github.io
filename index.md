@@ -1,16 +1,16 @@
 ## What we are all about 
-Our vision is of a world in which experienced professionals and practitioners invest their career capital in others with the intention of building a sustainable, prosperous and fair society for everyone.
+Our vision is of an economy dominated by businesses with purpose.  It is of a  world in which experienced professionals and practitioners invest their career capital in those who are starting out to build a sustainable, prosperous and fair society for everyone.
 
-Our mission is to help makers & doers bring their business with purpose ambitions to life, and to support them on their journey toward a resilient livelihood for themselves, and positive impact for their community.
+Our mission is to help business minded makers & doers bring their ambitions to life. To work alongside them in making a positive impact for their community, and support them on their journey toward a resilient livelihood for themselves.
 
-Our approach is to bring the right mix of people, resources and governance together to innovate toward a brilliant vision and realise brilliant outcomes. 
+Our approach is to bring the right mix of people, resources and governance together to innovate toward brilliant visions of the future, and realise brilliant outcomes. 
 
 ## For good makers & doers 
-You have an ambition to launch and build a business with purpose. You want a business that provides you with a good livlihood so you can serve your customers, users and community well. We provide you with the investment, support, expertise and connections that you need to make that happen.  
+You have an ambition to launch and build a business that is motivated by purpose and sustained with profit. You want a good company that provides your staff with  reasonable livlihoods so you can serve your customers, users and wider community well. 
 
-It's your business and we respect that. We are concerned first with the beneficial impact your business has and only then about returns on our capital. We are patient and will be there to support you build a sustainable enterprise; not pressure you to scale up quickly or narrow your vision down to your EBITA alone.  
+We provide you with the investment, support, expertise and connections that you need to make that happen. It's your business and we respect that. We are concerned first with the beneficial impact your business has and only then about returns on our capital. We are patient and will be there to support you build a sustainable enterprise; not pressure you to scale up quickly or narrow your vision down to your EBITA numbers alone.  
 
-Success is when your business is self-reliant, when it is delivering social value, and when it can continue doing that for the long term. You and your team are what matter in making this happen so we are investing in you and your team. We can help you with the cash you need to get started but developing your capability as leaders, makers and doers is what we are about. 
+Success is when your business is self-reliant, when it is delivering social value, and when it can continue doing that for the long term. You and your team are what matter in making this happen so we are investing in you and your team. We can help you with the cash you need to get started but developing your capability as leaders, makers and doers. This is what we are all about. 
 
 We are innovators. We are a bunch of practitioners with world class expertise that is there to for you to draw on. We can help out in a hands-on and practical way and by providing expert advice and mentoring. This spans leadership and governance through to pair-programming sessions with your software developers.  
 
@@ -24,17 +24,17 @@ To start with, you simply need an idea or project that needs support and investm
 We welcome applications from individuals, charities, social enterprises, mission-led businesses and organisations.
 
 ## For our member network
-Our network of supporters and proactive investors are people who are rich in experience and have a wealth of career capital - expertise, skills and other resources - to call on. They have busy lives but also a determination to make a difference by helping others.
+Our network of supporters and angel investors are people who are rich in experience and have a wealth of career capital - expertise, skills and other resources - to call on. They have busy lives but also a determination to make a difference by helping others.
 
 Our members are motivated first by making a positive impact and second by maintaining and growing their career capital. These assets include experience, social and professional network, skills, and financial. 
 
-Our memebers bring their whole selves to the table and commit their full canopy of resources; their time, energy, know-how, expertise and money. This is proactive capital at work. 
+Our memebers bring their whole selves to the table and commit their full canopy of resources; their time, energy, know-how, expertise and money. This is proactive but patient capital at work. 
 
 Our prime specialism is digital - product engineering, service delivery, strategy and transformation - complimented with expertise in other fields.
 
 We ask our members to invest career capital alongside financial capital.  
-- Financial investment is made on a matched funding basis. 
-- SEIS and EIS for equity investments. 
+- Financial investment is made on a matched funding basis 
+- SEIS and EIS for equity investments 
 - SITR for fixed income investments (bonds and loans)
 
 ## For partners 
