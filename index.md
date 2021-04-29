@@ -1,5 +1,5 @@
 ## What we are all about 
-Our vision is of a vibrant economy filled with businesses with purpose which are led by people striving to build a sustainable, prosperous and fair society for everyone. It is of a world in which experienced professionals and practitioners invest their career capital back in those who are starting out.
+Our vision is of a vibrant economy full of businesses with purpose which are led by people striving to build a sustainable, prosperous and fair society for everyone. It is of a world in which experienced professionals and practitioners invest their career capital back in those who are starting out.
 
 Our mission is to help business-minded makers & doers bring their ambitions to life. To work alongside them in making a positive impact for their community, and support them on their journey toward a resilient livelihood for themselves.
 
