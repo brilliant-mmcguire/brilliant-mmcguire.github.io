@@ -1,11 +1,11 @@
-## What we are all about 
+## Building a sustainable, prosperous and fair society for everyone 
 Our vision is of a vibrant economy full of businesses with purpose which are led by people striving to build a sustainable, prosperous and fair society for everyone. It is of a world in which experienced professionals and practitioners invest their career capital back in those who are starting out.
 
 Our mission is to help business-minded makers & doers bring their ambitions to life. To work alongside them in making a positive impact for their community, and support them on their journey toward a resilient livelihood for themselves.
 
-Our approach is to bring the right mix of people, resources and governance together to innovate toward brilliant visions of the future, and realise brilliant outcomes. 
+Our approach is to bring the right mix of people, resources and governance together to innovate toward brilliant visions of the future, and realise brilliant outcomes.
 
-## For good makers & doers 
+## Investing in good makers & doers 
 You have an ambition to launch and build a business that is motivated by purpose and sustained with profit. You want a good company that provides your staff with  reasonable livlihoods so you can serve your customers, users and wider community well. 
 
 We provide you with the investment, support, expertise and connections that you need to make that happen. It's your business and we respect that. We are concerned first with the beneficial impact your business has and only then about returns on our capital. We are patient and will be there to support you build a sustainable enterprise; not pressure you to scale up quickly or narrow your vision down to your EBITA numbers alone.  
