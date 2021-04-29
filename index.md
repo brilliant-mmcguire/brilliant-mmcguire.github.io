@@ -1,18 +1,18 @@
 ## Building a sustainable, prosperous and fair society for everyone 
-Our vision is of a vibrant economy full of businesses with purpose which are led by people striving to build a sustainable, prosperous and fair society for everyone. It is of a world in which experienced professionals and practitioners invest their career capital back in those who are starting out.
+Our vision is of a vibrant economy full of businesses with purpose that are led by people striving to build a sustainable, prosperous and fair society for everyone. It is of a world in which experienced professionals and practitioners invest their career capital back in those who are starting out.
 
 Our mission is to help business-minded makers & doers bring their ambitions to life. To work alongside them in making a positive impact for their community, and support them on their journey toward a resilient livelihood for themselves.
 
 Our approach is to bring the right mix of people, resources and governance together to innovate toward brilliant visions of the future, and realise brilliant outcomes.
 
 ## Investing in good makers & doers 
-You have an ambition to launch and build a business that is motivated by purpose and sustained with profit. You want a good company that provides your staff with  reasonable livlihoods so you can serve your customers, users and wider community well. 
+Do you have an ambition to launch and build a business that is driven by purpose and sustained with healthy profits? Do you want to lead a good company that provides your staff with decent livlihoods so that you can serve your customers, users and wider community well? 
 
-We provide you with the investment, support, expertise and connections that you need to make that happen. It's your business and we respect that. We are concerned first with the beneficial impact your business has and only then about returns on our capital. We are patient and will be there to support you build a sustainable enterprise; not pressure you to scale up quickly or narrow your vision down to your EBITA numbers alone.  
+We provide you with the investment, support, expertise and connections that you need to make that happen. It's your business and we respect that. We are concerned first with the beneficial impact your business has, and only then about returns on our capital. We are patient and will be there to support you build a sustainable enterprise; not pressure you to scale up quickly or narrow your vision down to your EBITA numbers alone.  
 
-Success is when your business is self-reliant, when it is delivering social value, and when it can continue doing that for the long term. You and your team are what matter in making this happen so we are investing in you and your team. We can help you with the cash you need to get started but developing your capability as leaders, makers and doers. This is what we are all about. 
+Success is when your business is self-reliant, when it is delivering social value, and when it can continue doing that for the long term. You and your team are what matter in making this happen so we are investing in you and your team. We can help you with the cash you need to get started but developing your capability as leaders, makers and doers. This is what we are all about.
 
-We are innovators. We are a bunch of practitioners with world class expertise that is there to for you to draw on. We can help out in a hands-on and practical way and by providing expert advice and mentoring. This spans leadership and governance through to pair-programming sessions with your software developers.  
+We are a bunch of practitioners with world class expertise that is there to for you to draw on. We are innovators and can help out in a hands-on and practical way. We provide expert advice and mentoring that spans leadership and governance through to pair-programming sessions with your software developers.  
 
 What we ask from you is that you strive to: 
 - Make a positive difference in the world and become a shining example to others
