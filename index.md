@@ -6,7 +6,7 @@ Our mission is to help business-minded makers & doers bring their ambitions to l
 Our approach is to bring the right mix of people, resources and governance together to innovate toward brilliant visions of the future, and realise brilliant outcomes.
 
 ## Investing in good makers & doers 
-Do you have an ambition to launch and build a business that is driven by purpose and sustained with healthy profits? Do you want to lead a good company that provides your staff with decent livlihoods so that you can serve your customers, users and wider community well? 
+Do you have an ambition to launch and build a business that is driven by purpose and sustained with healthy profits? Do you want to lead a good company that provides your staff with decent livelihoods so that you can serve your customers, users and wider community well? 
 
 We provide you with the investment, support, expertise and connections that you need to make that happen. It's your business and we respect that. We are concerned first with the beneficial impact your business has, and only then about returns on our capital. We are patient and will be there to support you build a sustainable enterprise; not pressure you to scale up quickly or narrow your vision down to your EBITA numbers alone.  
 
