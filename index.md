@@ -10,7 +10,7 @@ Do you have an ambition to launch and build a business that is driven by purpose
 
 We provide you with the investment, support, expertise and connections that you need to make that happen. It's your business and we respect that. We are concerned first with the beneficial impact your business has, and only then about returns on our capital. We are patient and will be there to support you build a sustainable enterprise; not pressure you to scale up quickly or narrow your vision down to your EBITA numbers alone.  
 
-Success is when your business is self-reliant, when it is delivering social value, and when it can continue doing that for the long term. You and your team are what matter in making this happen so we are investing in you and your team. We can help you with the cash you need to get started but developing your capability as leaders, makers and doers is what we are all about.
+Success is when your business is self-reliant, when it is delivering social value, and when it can continue doing that for the long term. You and your colleagues are what matter in making this happen so we are investing in you and your team. We can help you with the cash you need to get started but developing your capability as leaders, makers and doers is what we are all about.
 
 We are a bunch of practitioners with world class expertise that is there to for you to draw on. We are intentional innovators and can help out in a hands-on and practical way to navigate your challenges and build your capabilities. We provide expert advice and mentoring that spans strategy and governance, product engineering, through to pair-programming sessions with your software developers.  
 
