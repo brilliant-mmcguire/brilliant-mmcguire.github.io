@@ -37,7 +37,7 @@ We ask our members to invest career capital alongside financial capital.
 - SEIS and EIS for equity investments 
 - SITR for fixed income investments (bonds and loans)
 
-## For partners 
+## Innovate-for-good partnerships 
 We partner with companies, foundations, charities, national and international government organisations.  Our partners further the innovate-for-good movement through funding, investment, community engagement, expertise and insights.
 
 ## Our projects 
