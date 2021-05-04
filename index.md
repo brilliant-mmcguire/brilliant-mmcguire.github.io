@@ -5,7 +5,7 @@ Our mission is to help business-minded makers & doers bring their ambitions to l
 
 Our approach is to bring the right mix of people, resources and governance together to innovate toward brilliant visions of the future, and realise brilliant outcomes.
 
-## Invest in good makers & doers 
+## Invest in makers & doers 
 Do you have an ambition to launch and build a business that is driven by purpose and sustained with healthy profits? Do you want to lead a good company that provides your staff with decent livelihoods so that you can serve your customers, users and wider community well? 
 
 We provide you with the investment, support, expertise and connections that you need to make that happen. It's your business and we respect that. We are concerned first with the beneficial impact your business has, and only then about returns on our capital. We are patient and will be there to support you build a sustainable enterprise; not pressure you to scale up quickly or narrow your vision down to your EBITA numbers alone.  
@@ -23,7 +23,7 @@ To start with, you simply need an idea or project that needs support and investm
 
 We welcome applications from individuals, charities, social enterprises, mission-led businesses and organisations.
 
-## For our member network
+## Brilliant bunch is rich in career capital
 Our network of supporters and angel investors are people who are rich in experience and have a wealth of career capital - expertise, skills and other resources - to call on. They have busy lives but also a determination to make a difference by helping others.
 
 Our members are motivated first by making a positive impact and second by maintaining and growing their career capital. These assets include experience, social and professional network, skills, and financial. 
