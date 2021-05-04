@@ -23,7 +23,7 @@ To start with, you simply need an idea or project that needs support and investm
 
 We welcome applications from individuals, charities, social enterprises, mission-led businesses and organisations.
 
-## Brilliant bunch is rich in career capital
+## Invest career capital
 Our network of supporters and angel investors are people who are rich in experience and have a wealth of career capital - expertise, skills and other resources - to call on. They have busy lives but also a determination to make a difference by helping others.
 
 Our members are motivated first by making a positive impact and second by maintaining and growing their career capital. These assets include experience, social and professional network, skills, and financial. 
