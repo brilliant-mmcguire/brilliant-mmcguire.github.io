@@ -44,7 +44,7 @@ We partner with companies, foundations, charities, national and international go
 We support businesses with purpose using our practical and financial capital. Our strength is tech and innovation and we have broad conception of what that means. We believe brilliant outcomes result from the capabilities of dedicated teams of people.  For us, success looks like a commercially sustainable company of motivated and capable people serving their users, customers and community.  
 
 ## Equity, diversity and inclusion
-We want to advance equity, diversity and inclusion in every dimension of what we do and hold ourselves accountable for the results.  We are especially interested in investing in businesses run and staffed with people breaking glass ceilings.
+We want to advance equity, diversity and inclusion in every dimension of what we do and hold ourselves accountable for the results. Working with a businesses run and staffed by people breaking glass ceilings is especially interesting to us.
 
 ## Our philosophy & approach
 Big changes result from incremental steps, taken in common purpose, toward a shared vision. 
