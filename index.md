@@ -1,9 +1,9 @@
 ## Prosperous and fair society 
-Our vision is of a vibrant economy brimming with businesses striving to build a sustainable, prosperous and fair society for everyone. It is of a world buzzing with experienced professionals and practitioners investing back their career capital in people who are starting out.
+Our vision is of a vibrant economy brimming with businesses that strive to build a sustainable, prosperous and fair society for everyone. It is of a world buzzing with experienced professionals and practitioners investing back their career capital in people who are starting out as leaders.
 
-Our mission is to help business-minded makers & doers bring their ambitions to life. To work alongside them in making a positive impact for their community, and support them on their journey toward a purposeful and profitable enterprise.
+Our mission is to help business-minded makers & doers bring their ambitions to life. We work alongside them to make a positive impact for their community, and we support them on their journey toward a purposeful and profitable enterprise.
 
-Our approach is to bring the right mix of people, resources and governance together to innovate toward brilliant visions of the future, and realise brilliant outcomes.
+Our approach is to roll our sleeves up and work together as multi diciplined team.  We bring in the right mix of people, resources and practical governance. Together we make things work and innovate intelligently toward brilliant visions of the future to realise good outcomes.
 
 ## Invest in makers & doers 
 Do you have an ambition to launch and build a business that is driven by purpose and sustained with healthy profits? Do you want to lead a good company that provides your staff with decent livelihoods so that you can serve your customers, users and wider community well? 
